@@ -1,4 +1,4 @@
-#  
+#  rivals Scripts automatic offers the most advanced rivals Script, with infinite resources and teleport. Perfect for dominating any match.
 
 
 
